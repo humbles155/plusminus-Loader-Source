@@ -1,4 +1,3 @@
 # plusminus-Loader-Source
-faggots like to scam so i cracked there loader 😙
+some kid called mini hood released this so i thought i'd archive it
 
-full src. some shit may not work not my fault 🤷‍♂️
